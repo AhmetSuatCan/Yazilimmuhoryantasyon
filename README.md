@@ -1,0 +1,2 @@
+# Yazilimmuhoryantasyon
+Oryantasyon Vize Ödevi
